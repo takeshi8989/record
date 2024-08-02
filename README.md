@@ -11,5 +11,5 @@
 
 なお、2024年6月までの記録は動画としてYouTubeに残してある。
 ログイン方法は以下より
-- Mail Address: t_______c____89.gmail.com
+- Mail Address: t_______c____89@gmail.com
 - Password: __________89
